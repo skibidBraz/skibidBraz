@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @skibidBraz
-- 👀 I’m interested in abuse people
-- 🌱 I’m currently learning how to canibalize my sister
-- 💞️ I’m looking to collaborate on pcc
-- 📫 How to reach me skibidlandia
+- 👀 I’m interested 
+- 🌱 I’m currently
+- 💞️ I’m looking to 
+- 📫 How to reach me
 - 😄 Pronouns: skibid
 - ⚡ Fun fact: skibidsigma
 
